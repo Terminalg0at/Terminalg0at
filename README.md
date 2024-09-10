@@ -2,7 +2,7 @@
 - 👀 I stare endlessly into the (v0id) ...
 - 🎂 Happy Cake Day To Me 2024/09/10 06:45 am...
 - 💞️ I’m looking to collaborate on reverse engineering the universe.
-- 📫 How to reach me: virtually (and from anywhere on this mostly harmless planet).
+- 📫 How to reach me: virtually. //(and from anywhere on this mostly harmless planet).
 - 😄 Pronouns: Everything and Nothing (else matters!)
 - ⚡ Fun fact: Chess can be fun, of course. That's a fact, right?
 
